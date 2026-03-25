@@ -70,6 +70,8 @@ The Flow Hub is a separate brand from MODU Valves. That unlocks content that doe
 
 **Free shoutouts to partners.** We can give genuine exposure to Nordicals, RAVN Arkitektur, and all underleverandører til The Flow Hub. This content doesn't make sense on MODU Valves — our valve customers don't care who laid the bricks. But on The Flow Hub, it's natural. The partners appreciate it and engage back. Low effort, high love.
 
+**A named building creates a connection.** When you give a building a name, people form a relationship with it. "The Flow Hub" is not an accident — it lets us talk about our core business (flow technology, ball valves) and sustainability (because of the building's ESG profile) through a brand that feels personal, not corporate. The positive associations with the building rub off directly on MODU Valves without us having to sell anything.
+
 ---
 
 ## Brand guidelines
