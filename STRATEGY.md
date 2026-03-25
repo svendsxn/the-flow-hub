@@ -66,6 +66,12 @@ The Flow Hub is a separate brand from MODU Valves. That unlocks content that doe
 
 ---
 
+## Brand guidelines
+
+Colors, fonts, logo, and visual identity: **[Brand Book (mini)](https://brandkit.modu-one.com/tfh)**
+
+---
+
 ## Foundation (values)
 
 | | |
