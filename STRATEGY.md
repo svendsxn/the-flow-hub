@@ -12,6 +12,12 @@ Empowering the industry to produce better — offering the most inspiring workpl
 
 To build an inspiring workplace, a strategic asset for our core business and a sustainable investment.
 
+## Core mission: differentiation
+
+The Flow Hub positions MODU Valves as much more than a regular valve dealer. No competitor has anything like this. A purpose-built, architecturally significant HQ in wood and recycled materials signals ambition, permanence, and values that a rented warehouse never will.
+
+This differentiation doesn't happen by itself. It must be deliberately planned and executed on — through content, PR, customer visits, partner events, and every touchpoint where The Flow Hub can shift how people perceive MODU.
+
 ---
 
 ## Three pillars
