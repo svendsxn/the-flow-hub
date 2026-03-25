@@ -56,6 +56,16 @@ To build an inspiring workplace, a strategic asset for our core business and a s
 
 ---
 
+## Why The Flow Hub as a content channel
+
+The Flow Hub is a separate brand from MODU Valves. That unlocks content that doesn't belong on MODU's channels.
+
+**Local ambassadors.** The more local people who hear about MODU, our family, and what we're building, the more ambassadors we get. Their likes and shares reach their own networks — which may include connections at interesting customers we can sell to. Indirect reach, zero sales pressure.
+
+**Free shoutouts to partners.** We can give genuine exposure to Nordicals, RAVN Arkitektur, and all underleverandører til The Flow Hub. This content doesn't make sense on MODU Valves — our valve customers don't care who laid the bricks. But on The Flow Hub, it's natural. The partners appreciate it and engage back. Low effort, high love.
+
+---
+
 ## Foundation (values)
 
 | | |
